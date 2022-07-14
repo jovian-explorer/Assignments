@@ -18,7 +18,7 @@ I am listing the subjects I studied here, feel free to contact me if any particu
 
 5. Computational Dynamics
 
-6. Galactic extra-galactic astronomy
+6. Galactic and extra-galactic astronomy
 
 7. Relativity 
 
